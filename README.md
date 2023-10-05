@@ -1,13 +1,5 @@
-When it comes to health, every human being has their own definition. While some say, that the best way to a healthy life is good food others tend to disagree
-as they believe exercises keep us in good condition. Although I think both exercises and diet goes hand-in-hand, in some cases exercises has a small edge on
-diet. In this essay, I will put forward my views on both points and try to prove why exercises has an edge.
+Some people think that success is the best measure for intelligence, while others think that intelligence can be measured in other ways
 
-On one hand, food is one of the three basic necessities of living beings. Even WHO (World Health Organisation) has suggested that a person should include five
-portions of fruits and vegetables in their daily diet which provides balance. 
+There are people who believe that intelligence of a person is directly incured from their success and then there are others who think there are different ways to measure intelligence.In my opinion, not every intelligent person becomes successful and vice versa. Since intelligence is a very subjective topic, there should be no scale to measure intelligence and should be allowed to be measured by different ways. Below I have mentioned reasons why.
 
-But on the other hand, advocates of exercies will argue that exercises are essential towards good health. Engaging in exercises helps a person stay in a 
-specific weight range and keeps body away from diseases like diabaties, obeasity, heart diseases, etc. Regular exercises fosters better sleep pattern
-with increase in muscular strength. Exercises also have a direct relation to mental health as daily exercises reduces stress and prompting a sence of achievement.
-
-
-# temp
+For example, if a teacher who runs a tution batch of 20 students and every year almost all of their childern score excellent marks in examinations indicates that even though they run a small batch they may not be as successful when compared to the multimillion dollar industrial coaching classes however their intelligence has driven the academics of the 20 students
